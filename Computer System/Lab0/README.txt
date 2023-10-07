@@ -1,0 +1,1 @@
+I, Nguyen Vu, have read and understood the Spring CSE12 syllabus and Personal Responsibility Document. npvu 24 September 2022 
